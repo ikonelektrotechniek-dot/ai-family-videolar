@@ -1,0 +1,3 @@
+# AI FAMILY – Yapay Zekâlı Aile
+
+GÜLEREK ÖĞREN, YAPAY ZEKÂYI DOĞRU KULLAN!
